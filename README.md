@@ -1,0 +1,2 @@
+# Plan
+Gabut aja bang
